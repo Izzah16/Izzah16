@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at my **[Portfolio](https://izzah16.github.io/Izzah.me/)**.
 
-- 📫 How to reach me: **[LinkedIn](https://www.linkedin.com/in/izzah-javed/](https://www.linkedin.com/in/izzah-javed-a15067307/))**
+- 📫 How to reach me: **[LinkedIn](https://www.linkedin.com/in/izzah-javed-a15067307/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
